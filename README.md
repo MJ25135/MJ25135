@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Maks
+- 👀 I’m interested in passing my studies
+- 🌱 I’m currently learning freaking everything
+- 💞️ I’m looking to collaborate on same as higher
+- 📫 How to reach me: email = s25135@pjwstk.edu.pl
